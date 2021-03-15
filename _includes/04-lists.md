@@ -1,0 +1,3 @@
+- reading
+- watching anime
+- snacking
